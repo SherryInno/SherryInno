@@ -4,7 +4,7 @@
 
 AVP Product Manager at Citigroup building AI-assisted workflows and investment data platforms. CS grad. ACSPO & CSM certified. 6+ years turning ambiguous problems into shipped products with measurable outcomes.
 
-Based in Toronto 🇨🇦 · [LinkedIn](https://linkedin.com/in/sherryinnocent) · [Substack](https://substack.com/@sherryinnocent)
+Based in Toronto 🇨🇦 · [LinkedIn](https://linkedin.com/in/sherry-innocent) · [Substack](https://substack.com/@sherryinnocent)
 
 ---
 
